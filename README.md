@@ -1,0 +1,2 @@
+# Online-Hackathon-KZ
+Coronavirus
